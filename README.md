@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @zongyangx
+- 👀 I’m interested in the art of music, as well as some other arts.
+- 🌱 I’m currently learning music production, A-Level
+- 💞️ I’m looking to collaborate on Chinesem music(not limited), GTU Program.
+- 📫 How to reach me
+- NetEast-Music: http://music.163.com/artist?id=49439499
+- Spotify: https://open.spotify.com/artist/2Atls5amzqFIgZpAi0RPw
